@@ -8,4 +8,4 @@ Meu nome é Jhonatan victor
 
 Você pode entrar em contato comigo 📫
 
-![](https://images.app.goo.gl/LxT7SzcAa1VErJhd9)
+![https://images.app.goo.gl/LxT7SzcAa1VErJhd9](link)
